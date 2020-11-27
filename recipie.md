@@ -1,0 +1,1 @@
+Clean out the chicken first, then you add your seasoning and oil to the matal container or on the chicken. Then put it in the oven until it is done.
